@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LOTM841116HDGZPG01
+LOTM841116HDGZPG01
